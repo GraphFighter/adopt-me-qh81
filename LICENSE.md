@@ -1,4 +1,4 @@
-
+no-ban Script for adopt me is the best adopt me Script, featuring speed and no cooldown. Safe and powerful for all your needs.
 
 
 
